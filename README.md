@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BEYA-khan
 - 👀 I’m interested in hacking 
 - 🌱 I’m currently learning pyton
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... also help me 
 - 📫 How to reach me just say my name I'll be there
 - 😄 Pronouns: .khan..
 - ⚡ Fun fact: ...
